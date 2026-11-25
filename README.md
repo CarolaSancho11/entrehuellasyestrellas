@@ -1,0 +1,2 @@
+# entrehuellasyestrellas
+Oráculo de Lenormand 
